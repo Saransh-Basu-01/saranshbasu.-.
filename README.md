@@ -19,7 +19,7 @@
 - 🌐 Collaborate with a community of developers to build impactful and innovative solutions.
 
 ## Connect with Me
-- [LinkedIn](www.linkedin.com/in/saransh-basu-86a4152b5)
+- [LinkedIn].(www.linkedin.com/in/saransh-basu-86a4152b5)
 -[instagram].(https://www.instagram.com/saranshbasu.__/)
 
 ## Fun Fact
